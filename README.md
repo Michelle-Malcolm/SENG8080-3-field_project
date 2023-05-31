@@ -7,4 +7,4 @@ Mr. Rajan Thakkar
 Mr. Harsh Polra
 Mr. Jaldip Mangukiya
 Mr. Divyang Hirpara
-Michelle Malcolm
+Ms. Michelle Malcolm
